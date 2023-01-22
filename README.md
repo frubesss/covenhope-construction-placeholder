@@ -1,1 +1,0 @@
-# covenhope-construction-placeholder
